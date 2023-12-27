@@ -1,4 +1,4 @@
-<h1 align="center"> Link das paginas referente as contas Minha Série em Cortes no Instagram, Youtube e TikTok</h1>
+Link Minha Lérie em Cortes 
 
 
 
